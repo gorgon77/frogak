@@ -1,0 +1,2 @@
+### Frogetarako repositorioa
+   kaixo
